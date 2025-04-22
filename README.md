@@ -1,1 +1,0 @@
-# jain-siddhant-praveshika
